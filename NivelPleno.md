@@ -11,3 +11,5 @@
 * entende "escala" como aumentar a própria produtividade
 
 PS: 20% é feeling, pense em 1 erro de julgamento a cada 5 decisões.
+
+Se fosse inglês, neste estágio sabe ler e escrever fluentemente, onde o texto seria quase confundido com um nativo, talvez falar ainda nem tanto.
