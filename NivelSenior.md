@@ -15,4 +15,4 @@
 * entende "escala" como aumentar a produtividade da equipe (significa não só velocidade mas prática em tomada de decisão, por exemplo, trocar uma solução complicada por uma mais simples de igual resultado, ou eliminar tarefas desnecessárias)
 
 
-Se fosse inglês, seria fluente em leitura, escrita e ser confundido com um nativo inclusive sem sotaque e cultura.
+Se fosse inglês, seria fluente em leitura, escrita e ser confundido com um nativo inclusive em sotaque e cultura.
